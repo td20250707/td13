@@ -16,4 +16,4 @@
 优质平台还会定期更新资源，避免非法网站带来的安全隐患。
 保护个人隐私，选择正规渠道观看，确保愉快的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/td20250707/td13 ）</span>
